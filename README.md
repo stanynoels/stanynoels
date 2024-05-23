@@ -2,7 +2,7 @@
 - 👀 I’m interested in data science
 - 🌱 I’m currently learning data analytics and machine learning
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me stanynoel@gmail.com
+- 📫 How to reach me stanynoel4@gmail.com
 - 😄 Pronouns: noi
 - ⚡ Fun fact: 😄
 
